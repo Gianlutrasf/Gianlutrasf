@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Gianlutrasf
+- 👀 I’m interested in Game Developing and I'm excited if I can participate at the game off game jam of this year
+- 🌱 I’m currently learning Game maker Language, i'm not too good at it but I can still learn
